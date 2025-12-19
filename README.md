@@ -1,0 +1,1 @@
+—  Algebraic and Transcendental Equations.
